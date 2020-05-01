@@ -2,4 +2,4 @@
 CS50 - Patel 2020
 
 
-Need to find an outlet to create.
+I enjoy learing new things, and have always been curious.
